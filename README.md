@@ -1,0 +1,1 @@
+# satoran-VBA-Challenge-SMA
